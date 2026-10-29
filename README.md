@@ -11,8 +11,10 @@ to complete the cusive 'A.' I also tried to make a funnel for the dot in the 'i'
 previously mentioned funnel of doom. For now, Im done with that though and can continue learning Onshape at my own pace, while also working on other things.
 
 
+<img width="843" height="870" alt="Screenshot_2026-10-29_18-35-32" src="https://github.com/user-attachments/assets/551fb211-d4a8-48ed-9768-164478af1975" />
 
-/home/ali/Pictures/Screenshots/Screenshot_2026-10-19_16-09-43.png
+<img width="1920" height="1154" alt="Screenshot_2026-10-18_19-10-45" src="https://github.com/user-attachments/assets/b21bf4fe-4aaf-442f-8486-189c8a5188c0" />
+
 
 
 
